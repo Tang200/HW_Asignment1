@@ -1,1 +1,1 @@
-Nguyễn Văn Quang_20193069_N10_HW1
+Khổng Minh Tăng_20193097_N2_HW1
